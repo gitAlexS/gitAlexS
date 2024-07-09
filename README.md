@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning computer science at Università degli studi di Salerno
+🌱 I’m currently studying computer science at Università degli studi di Salerno
 
 
 ## 🌐 Socials:
